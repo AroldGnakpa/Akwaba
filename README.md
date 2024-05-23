@@ -1,4 +1,3 @@
-# Akwaba
 Arold Hermann Gnakpa - Software Engineer 🚀
 🌍 Location: Cocody, Ivory Coast
 📱 Phone: +2250749709939
